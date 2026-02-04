@@ -1,1 +1,1 @@
-# Stefan---Junior-Web-Developer
+# Stefan-Junior Web Developer
